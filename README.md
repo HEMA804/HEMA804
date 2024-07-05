@@ -11,4 +11,16 @@ ________________________________________________________________________________
 
 **👨‍💻 Experience:** Completed internships in AI For HealthCare
 
+**⚡ Fun fact**: In the episode "Holidays of Future Passed," "The Simpsons" predicted the widespread use of AI personal assistants. Lisa interacts with a virtual AI in her home, much like today's Siri or Alexa. It's amazing how this show has anticipated technological trends!
+
 I'm eager to contribute my skills in data analysis, predictive modeling, and AI development to innovative projects. Let's connect and explore opportunities in the exciting field of AI!
+
+**Stay in the Loop**
+
+**🌐 LinkedIn:** https://www.linkedin.com/in/hema-sahayaraj-91977124a/
+"Your network is your net worth." – Porter Gale
+
+**💻 GitHub:** https://github.com/HEMA804
+"Code is like humor. When you have to explain it, it’s bad." – Cory House
+
+Let's push the boundaries of what's possible with AI together!
